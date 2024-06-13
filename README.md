@@ -12,6 +12,6 @@
 * habilidad en cargas pesadas de jornadas extensas
 * habilidad culinaria destaca por múltiples gastronomos profesionales 
 *  luchador olímpico en formación
-* ![foto] (https://www.google.com/url?sa=i&url=https%3A%2F%2Fmis-juegos-olimpicos.com%2Fdisciplinas-olimpicas%2Flucha-grecorromana-olimpica%2F&psig=AOvVaw0C9d0voJfg2lIeTpQ6Xt55&ust=1718374908493000&source=images&cd=vfe&opi=89978449&ved=0CBIQjRxqFwoTCJi_2MLj2IYDFQAAAAAdAAAAABAE)
+* https://superluchas.com/cl_resize/WccbGZD104ruQIB6wWG2I48lh8OzeTIxF99qzj4e7gU/rs:fill:500:0/g:ce/q:70/aHR0cHM6Ly9zMy5zdXBlcmx1Y2hhcy5jb20vMjAxNi8wMy9sdWNoYS1vbGltcGljYTEuanBn.webp
 *  luchador de mma
 *  en general habilidad física superior al promedio 
