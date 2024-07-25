@@ -17,6 +17,11 @@
 *  luchador olímpico en formación
 * ![ejemplo](https://superluchas.com/cl_resize/WccbGZD104ruQIB6wWG2I48lh8OzeTIxF99qzj4e7gU/rs:fill:500:0/g:ce/q:70/aHR0cHM6Ly9zMy5zdXBlcmx1Y2hhcy5jb20vMjAxNi8wMy9sdWNoYS1vbGltcGljYTEuanBn.webp)
 *  luchador de mma
+*  escalador profesionales entre mis numerosas escalas destacan las siguientes:
+*  Monte Everes
+*  Kanchenjunga
+*  Makalu
+*  Dhaulagiri
 *  en general habilidad física superior al promedio
 
   
